@@ -3,6 +3,7 @@
 -  I’m currently learning html (technically not a programming language Ah whatever) and soon python MAYBE??? i dunno
 -  I’m looking to collaborate with noone, for now
 -  How to reach me ... i cant tell you because it's personal info lol skill issue
+-  hello!!
 
 <!---
 fuck haha i said swear
