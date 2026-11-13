@@ -4,7 +4,7 @@
 -  I’m looking to collaborate with noone, for now
 -  How to reach me ... i cant tell you because it's personal info lol skill issue
 -  hello!!
--  - i joined on may 28th 2020 damnn that was a long time ago
+-  i joined on may 28th 2020 damnn that was a long time ago
 
 <!---
 fuck haha i said swear
